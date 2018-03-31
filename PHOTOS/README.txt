@@ -1,0 +1,1 @@
+Fill this folder with all the memes you want our lord to react to!
